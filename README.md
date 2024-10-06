@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kakerdc
+- 👀 I’m interested in: Discord bots and python
+- 🌱 I’m currently learning: Python
+- 💞️ I’m looking to collaborate on: Discord & Telegram
+- 📫 How to reach me: Discord: kaker.dc
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: My username is word I was randomly saying when I was 2
